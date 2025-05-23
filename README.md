@@ -28,6 +28,11 @@ Thứ Tự Xem Fate
 
 ## B. Thế giới song song kể về Illya (có thể bỏ qua) (Alternate Timeline – Prisma Illya):
 
+``Xem Phần Movie Này Trước Vì Nội Dung Movie Diễn Ra Trước Cốt Truyện Chính:``
+[Sekka no Chikai](https://animevietsub.lol/phim/fatekaleid-liner-prismaillya-movie-sekka-no-chikai-i1-a2962/)
+
+
+``Seri Chính``
 [Season 1](https://animevietsub.lol/phim/fatekaleid-liner-prismaillya-i3-a894/)
 
 [2wei](https://animevietsub.lol/phim/fatekaleid-liner-prismaillya-2wei-r1-a895/)
@@ -40,9 +45,6 @@ Thứ Tự Xem Fate
 
 [3rei!!](https://animevietsub.lol/phim/fatekaleid-liner-prismaillya-3rei-i3-a898/)
 
-``Movie:``
-
-[Sekka no Chikai](https://animevietsub.lol/phim/fatekaleid-liner-prismaillya-movie-sekka-no-chikai-i1-a2962/)
 
 [Licht - Namae no Nai Shoujo](https://animevietsub.lol/phim/fate-kaleid-liner-prisma-illya-movie-licht-namae-no-nai-shoujo-a4612/)
 
