@@ -4,7 +4,7 @@
 
 <img src="https://media2.giphy.com/media/603hSzqZjQJ6kB2miz/giphy.gif?cid=6c09b952tjacgoritxq5pibkd9meyrsfomqg937kmh5spj7w&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=s" width="20" />   **1. 🔗[Fate/Zero](https://animevietsub.lol/phim/fate-zero-i2-a875/)**  
 
-🔥 Cuộc chiến Chén Thánh lần thứ 4, khởi đầu đầy kịch tính!
+🔥 Nội dung lấy bối cảnh 10 năm trước Cuộc Chiến Chén Thánh lần thứ 5 trong Fate/Stay Night với nhân vật chính là Emiya Kiritsugu, khởi đầu đầy kịch tính!
 
 **2. [Fate/Stay Night: Unlimited Blade Works]**  
 - <img src="https://media2.giphy.com/media/603hSzqZjQJ6kB2miz/giphy.gif?cid=6c09b952tjacgoritxq5pibkd9meyrsfomqg937kmh5spj7w&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=s" width="20" /> **🔗[Phần 1](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-a879/)**  
