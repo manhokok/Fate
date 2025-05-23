@@ -75,3 +75,6 @@
 ---
 
 🎉 **Chúc bạn thưởng thức hành trình Fate đầy cảm xúc!** 🎉
+
+### Contact
+- <img src="https://media0.giphy.com/media/K1yDkNVaUw1OftnKLM/giphy.gif?cid=6c09b952bsmhoq25b7ownszgdzioaneh7cwf5sbukf925cpd&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=s" width="40" /> [Tiktok](https://www.tiktok.com/@yanagifumimitsu?)
