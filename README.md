@@ -78,3 +78,4 @@
 
 ### Contact
 - <img src="https://media0.giphy.com/media/K1yDkNVaUw1OftnKLM/giphy.gif?cid=6c09b952bsmhoq25b7ownszgdzioaneh7cwf5sbukf925cpd&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=s" width="40" /> [Tiktok](https://www.tiktok.com/@yanagifumimitsu?)
+- <img src="https://media0.giphy.com/media/ZcdZ7ldgeIhfesqA6E/giphy.gif?cid=6c09b952hp9p2d7psa3q5p4xrof7bvqckgftbju8ahixxofv&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=s" width="40" /> [Telegram](https://t.me/FumiMitsu)
