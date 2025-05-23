@@ -5,14 +5,14 @@
 **1. [Fate/Zero](https://animevietsub.lol/phim/fate-zero-i2-a875/)**
 
 **2. [Fate/Stay Night: Unlimited Blade Works]**  
-- [Phần 1](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-a879/)  
-- [Phần 2](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-ss2-a880/)  
-- [Phần Cuối](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-a885/)
+- **[Phần 1](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-a879/)**  
+- **[Phần 2](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-ss2-a880/)**  
+- **[Phần Cuối](https://animevietsub.lol/phim/chen-thanh-dem-dinh-menh-nhiem-vu-cuoi-cung-a885/)**
 
 **3. [Fate/Stay Night: Heaven's Feel]**  
-- [I. Presage Flower](https://animevietsub.lol/phim/fatestay-night-movie-heavens-feel-i-presage-flower-a4200/)  
-- [II. Lost Butterfly](https://animevietsub.lol/phim/fatestay-night-movie-heavens-feel-ii-lost-butterfly-a3600/)  
-- [III. Spring Song](https://animevietsub.lol/phim/fatestay-night-movie-heavens-feel-iii-spring-song-a3761/xem-phim-75583.html)
+- **[I. Presage Flower](https://animevietsub.lol/phim/fatestay-night-movie-heavens-feel-i-presage-flower-a4200/)**  
+- **[II. Lost Butterfly](https://animevietsub.lol/phim/fatestay-night-movie-heavens-feel-ii-lost-butterfly-a3600/)**  
+- **[III. Spring Song](https://animevietsub.lol/phim/fatestay-night-movie-heavens-feel-iii-spring-song-a3761/xem-phim-75583.html)**
 
 ---
 
